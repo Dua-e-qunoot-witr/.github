@@ -48,7 +48,7 @@ wa ilayka nas’á wa nahfidu, wa narju rahmataka,
 wa nakhshaa ‘adhaabaka, inna ‘adhaabaka bil-kuffaari mulhiq.
 
 
-## Understanding [Dua e Qunoot](https://islamicdoor.com/dua-qunoot/)
+## Understanding Dua e Qunoot
 **What it is:**
 - Special supplication in Witr prayer
 - Arabic root "Qunoot" means devotion/submission
